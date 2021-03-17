@@ -1,0 +1,1 @@
+# ekip-4-inceleme
